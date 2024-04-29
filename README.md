@@ -1,1 +1,1 @@
-Click [here](https://Camillaaaaaaaa.github.io/tiles/index.html)
+Click [here](https://camillaaaaaaaa.github.io/tiles/)
